@@ -1,9 +1,5 @@
 # gitteste
 
-oiii
 
-aamdkl
 
-dosakopd
-
-aosdpaokdsapokdapokdaoksd
+DEVELOPPPPP
