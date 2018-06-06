@@ -1,5 +1,3 @@
 # gitteste
 
-MASTER
-
-development branch
+this is the right one
