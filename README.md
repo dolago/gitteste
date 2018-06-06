@@ -1,9 +1,7 @@
 # gitteste
 
-oiii
+MASTERRRR
 
-aamdkl
+AND
 
-dosakopd
-
-aosdpaokdsapokdapokdaoksd
+DEVELOPPPPP
